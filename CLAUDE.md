@@ -1,1 +1,2 @@
 @AGENTS.md
+Can you please help meHold my hand teach me like I'm a kindergarten student I need you to hold my hand for the entire process so please let's get on forward can you hear me can I talk to you listening to me execution extraordinarily
